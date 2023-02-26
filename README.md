@@ -1,3 +1,3 @@
 # Community Classroom is OP
 
-- Kunal Kushwaha is washer
+- Kunal Kushwaha is a a diamond
